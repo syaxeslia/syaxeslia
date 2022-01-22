@@ -1,4 +1,2 @@
 - @syaxeslia
 - You didn't come to steal the project, did you?
-- Well, let's forget about that. Me syaxeslia. who are you?
-- You can't just take what you're going to get and run straight away, my friend.
